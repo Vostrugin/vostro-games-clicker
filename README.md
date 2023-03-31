@@ -1,0 +1,1 @@
+# vostro-games-clicker
